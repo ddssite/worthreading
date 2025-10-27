@@ -1,1 +1,1 @@
-This is a set of documents that I fond are worth reading.  Spiritual topics of Orthodox Christianity, stories, pictures, and just other cool stuff I've collected over the years that as I suggested, have value. Enjoy and God be with you!
+This is a set of documents that are worth reading.  Spiritual topics of Orthodox Christianity, stories, pictures, and just other interesting and and edifying content I've collected over the years that, as I suggest, have value. Enjoy and God be with you!
